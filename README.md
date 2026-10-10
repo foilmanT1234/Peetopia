@@ -12,9 +12,4 @@ One day, it might be clipping through the floor. Another day, it might be floati
 3. **Launch:** Release and watch the trajectory of his urine!
 <br>
 ## Getting Started
-<br>
 **Visit:** https://foilmant1234.github.io/methamphetamine/peetopia.html
-<br>
-or
-<br>
-**Download index.html from above**
