@@ -11,7 +11,8 @@ One day, it might be clipping through the floor. Another day, it might be floati
 2. **Adjust the Intensity:** Set the initial velocity of the urine.
 3. **Launch:** Release and watch the trajectory of his urine!
 <br>
-## Getting Started <br>
+## Getting Started
+<br>
 **Visit:** https://foilmant1234.github.io/methamphetamine/peetopia.html
 <br>
 or
